@@ -4,5 +4,5 @@
 
  - Usando o GitHub para organização dos meus projetos.
 
-![](https://tenor.com/pt-BR/view/eduardo-cinco-noches-eduardo-eduardo-fnaf-gif-321682115044605828)
+![](https://tenor.com/pt-BR/view/eduardo-gif-21122910)
 
