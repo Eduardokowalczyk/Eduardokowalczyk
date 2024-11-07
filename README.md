@@ -4,5 +4,5 @@
 
  - Usando o GitHub para organização dos meus projetos.
 
-![](https://tenor.com/pt-BR/view/shrek-gif-22723573)
+![](https://media1.tenor.com/m/X1SPPzfGWC4AAAAd/shrek.gif)
 
